@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **aaronamelink@gmail.com**
 
-- 📄 Know about my experiences [(Resume)[https://1drv.ms/b/c/30c07eeef9e82c15/ETGdHoGDyI1Crbeiz8jeDoYBUewKtL9SoWnsXvFGHJfPbg?e=0cHVdA]]((Resume)[https://1drv.ms/b/c/30c07eeef9e82c15/ETGdHoGDyI1Crbeiz8jeDoYBUewKtL9SoWnsXvFGHJfPbg?e=0cHVdA])
+- 📄 Know about my experiences [Resume](https://1drv.ms/b/c/30c07eeef9e82c15/ETGdHoGDyI1Crbeiz8jeDoYBUewKtL9SoWnsXvFGHJfPbg?e=0cHVdA)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
